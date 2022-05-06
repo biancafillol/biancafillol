@@ -12,11 +12,11 @@
  
 - ¿Qué estoy estudiando?
 
-   Ingeniería en Computación. ☜(ﾟヮﾟ☜)
+     Ingeniería en Computación. ☜(ﾟヮﾟ☜)
 
 - **__¿Cosas para saber sobre mi?__** (✿◡‿◡)
 
-    Principalmente, que anoto *de todo*.
+     Principalmente, que anoto *de todo*.
 
      De "todo" es:
 
@@ -24,7 +24,7 @@
 
 - **¿Dónde los anoto?**
 
-   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
+     ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
 Igual no importa eso ^.^
 ## ¡¡¡Porque ya estás anotado/a ✍(◔◡◔)!!!
