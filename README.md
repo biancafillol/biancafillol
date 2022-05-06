@@ -1,7 +1,6 @@
 ***
 ![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
 ![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
-![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
 ## ¡Hola!
 
 
@@ -25,7 +24,6 @@ Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
 Igual no importa eso
 ## ¡¡¡Porque ya estás anotado/a ✍(◔◡◔)!!!
-![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
 ![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
 ![75940572b1383528ceb0df658d65d28156205e67_hq](https://user-images.githubusercontent.com/105023635/167051522-3c44b6bd-888c-457b-881b-1facfd8cbadf.gif)
 ***
