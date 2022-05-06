@@ -1,7 +1,5 @@
 ***
-![ac24c83b02ef82040b5843b1ba4f1182](https://user-images.githubusercontent.com/105023635/167052312-dcac1c59-0e30-4848-b76b-ac8348b2bf60.gif)
-![ac24c83b02ef82040b5843b1ba4f1182](https://user-images.githubusercontent.com/105023635/167052312-dcac1c59-0e30-4848-b76b-ac8348b2bf60.gif)
-![ac24c83b02ef82040b5843b1ba4f1182](https://user-images.githubusercontent.com/105023635/167052312-dcac1c59-0e30-4848-b76b-ac8348b2bf60.gif)
+
 ## ¡Hola!
 
 
