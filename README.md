@@ -8,11 +8,11 @@
 
 ## Mi nombre es Bianca~ (´▽`ʃ♡ƪ)
 
-**¡Y soy estudiante de la Universidad Nacional de Río Negro, sede Andina!**
+**¡Y soy estudiante de la Universidad Nacional de Río Negro, en la sede Andina!**
  
 - ¿Qué estoy estudiando?
 
-   Ingeniería en Computación.
+   Ingeniería en Computación. ☜(ﾟヮﾟ☜)
 
 - **__¿Cosas para saber sobre mi?__** (✿◡‿◡)
 
