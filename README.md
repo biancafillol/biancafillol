@@ -24,7 +24,7 @@
 
 - **¿Dónde los anoto?**
 
-   Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
+   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
 Igual no importa eso ^.^
 ## ¡¡¡Porque ya estás anotado/a ✍(◔◡◔)!!!
