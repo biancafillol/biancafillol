@@ -9,14 +9,17 @@
 ## Mi nombre es Bianca~ (´▽`ʃ♡ƪ)
 
 **¡Y soy estudiante de la Universidad Nacional de Río Negro, sede Andina!**
+ 
+- ¿Qué estoy estudiando?
+ Ingeniería en Computación,
 
-**__¿Cosas para saber sobre mi?__** (✿◡‿◡)
+- **__¿Cosas para saber sobre mi?__** (✿◡‿◡)
 
-Principalmente, que anoto *de todo*.
+    Principalmente, que anoto *de todo*.
 
-__De todo es:__
+      __De todo es:__
 
-- Nombres. 
+        - Nombres. 
 
 La pregunta es **¿dónde?**
 
