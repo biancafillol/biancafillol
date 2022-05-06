@@ -11,6 +11,7 @@
 **¡Y soy estudiante de la Universidad Nacional de Río Negro, sede Andina!**
  
 - ¿Qué estoy estudiando?
+
    Ingeniería en Computación.
 
 - **__¿Cosas para saber sobre mi?__** (✿◡‿◡)
@@ -23,9 +24,9 @@
 
 - **¿Dónde los anoto?**
 
-  Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
+   Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
-Igual no importa eso
+Igual no importa eso ^.^
 ## ¡¡¡Porque ya estás anotado/a ✍(◔◡◔)!!!
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
