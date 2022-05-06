@@ -1,4 +1,3 @@
-***
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
@@ -29,4 +28,3 @@ Igual no importa eso
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
 ![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-***
