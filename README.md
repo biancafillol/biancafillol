@@ -18,7 +18,7 @@
 
      Principalmente, que anoto *de todo*.
 
-     De "todo" es:
+     *"de todo"* es:
 
      - Nombres. 
 
