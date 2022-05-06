@@ -11,7 +11,7 @@
 **¡Y soy estudiante de la Universidad Nacional de Río Negro, sede Andina!**
  
 - ¿Qué estoy estudiando?
- Ingeniería en Computación.
+   Ingeniería en Computación.
 
 - **__¿Cosas para saber sobre mi?__** (✿◡‿◡)
 
@@ -21,9 +21,9 @@
 
      - Nombres. 
 
-La pregunta es **¿dónde?**
+- **¿Dónde los anoto?**
 
-Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
+  Andá a saber.   ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
 Igual no importa eso
 ## ¡¡¡Porque ya estás anotado/a ✍(◔◡◔)!!!
