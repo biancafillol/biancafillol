@@ -20,7 +20,7 @@
      
      - Me gusta el jazz, música de los 80's y 90's. ❤️
      
-     -También, que anoto *de todo*.
+     - También, que anoto *de todo*.
 
      *"de todo"* es:
 
