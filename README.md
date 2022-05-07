@@ -1,8 +1,5 @@
 ***
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
-
+____________________________________![ff0176290d1c7092aecb42168eed0348](https://user-images.githubusercontent.com/105023635/167268548-f806d825-3acd-4e9e-81bd-79fd9f432fd4.gif) ____________________________________
 ## ¡Hola!
 
 ## Mi nombre es Bianca~ ♡
@@ -29,7 +26,4 @@
 
        ¯\\\_( ͡° ͜ʖ ͡°)_/¯
 
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
-![02c71ba78daff6248582a3850c46dd5b](https://user-images.githubusercontent.com/105023635/167268171-b62a1ba4-5257-4ab1-8ca4-d3a73db65801.gif)
 ***
