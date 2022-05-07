@@ -1,9 +1,8 @@
 ***
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
+
 ## ¡Hola!
 
 ## Mi nombre es Bianca~ ♡
@@ -29,12 +28,8 @@
      - ¿**Dónde** los anoto?
 
        ¯\\\_( ͡° ͜ʖ ͡°)_/¯
-   
 
-
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
-![b1c4b364d78accf6a167f0d7db4082d9](https://user-images.githubusercontent.com/105023635/167052478-eacb8593-3a2c-4381-8b45-3634a7ec9f00.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
+![8921d99e61c1dbabafaea1e98fde1103](https://user-images.githubusercontent.com/105023635/167267854-6f0eb538-1c2a-494e-9f3d-36eeaec11e5a.gif)
 ***
