@@ -22,13 +22,13 @@
      
      - También, que anoto *de todo*.
 
-     *"de todo"* es:
+        *"de todo"* es:
 
-     - Nombres. 
+        Nombres. 
 
-- **¿Dónde los anoto?**
+     - ¿**Dónde** los anoto?
 
-     ¯\\\_( ͡° ͜ʖ ͡°)_/¯
+       ¯\\\_( ͡° ͜ʖ ͡°)_/¯
    
 
 
