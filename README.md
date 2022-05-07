@@ -13,7 +13,7 @@
 
 - **¿Cosas para saber sobre mi?**
  
-     - Soy de Buenos Aires, Argentina 🇦🇷
+     - Soy de Buenos Aires, Argentina.
      
      - Me gusta el jazz, música de los 80's y 90's. ❤️
      
