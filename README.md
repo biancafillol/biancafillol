@@ -15,6 +15,8 @@
  
      - Soy de Buenos Aires, Argentina.
      
+     - Tengo 17 años.
+     
      - Me gusta el jazz, música de los 80's y 90's. ❤️
      
      - También, que anoto *de todo*.
