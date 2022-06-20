@@ -15,7 +15,7 @@
  
      - Soy de Buenos Aires, Argentina.
      
-     - Tengo 18 años. _Recientemente cumplidos_ 🥳
+     - Tengo 18 años.
      
      - Me gusta el jazz, música de los 80's y 90's. ❤️
      
