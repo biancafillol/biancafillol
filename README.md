@@ -7,7 +7,7 @@
 **Soy estudiante de la Universidad Nacional de Río Negro, en la sede Andina**
 ... y estoy estudiando Ingeniería en Computación :godmode:
 
-- **_Te comento..._*
+- **_Te comento :shipit:_**
      Tengo 18 años. Me gusta el jazz, música de los 80's y 90's. ❤
  
 _ **_Te comento también..._**
