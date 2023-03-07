@@ -5,7 +5,7 @@
 ## Mi nombre es Bianca ♡
 
 **Soy estudiante de la Universidad Nacional de Río Negro, en la sede Andina**
-... y estoy estudiando Ingeniería en Computación :godmode:
+... y estoy estudiando Ingeniería en Computación :bowtie:
 
 - **Te comento :mate:**
 
