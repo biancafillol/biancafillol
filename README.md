@@ -15,7 +15,7 @@
      
      - Me gusta el jazz, música de los 80's y 90's. ❤
      
-     - Se aceptan dulces humildemente
+     - Se aceptan dulces humildemente.
 
 ***
 ![Badge](https://bit.ly/icom-badge)
