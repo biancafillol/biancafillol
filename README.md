@@ -2,7 +2,7 @@
 
 # Bienvenidos/as a este perfil
 
-## Holis, soy bian! 🪬🌞
+## Holis, soy bian! 🌞
 
 **Soy estudiante de la Universidad Nacional de Río Negro, en la sede Andina**
 ... y estoy estudiando Ingeniería en Computación!
