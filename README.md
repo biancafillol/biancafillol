@@ -12,6 +12,6 @@
   - Tengo 20 años. 
   - Me gusta el jazz, música de los 80's y 90's. :brown_heart:
   - Me encanta la chocotorta.
-  - Y en lenguajes de programación tengo experiencia con: C, Java, Python, Assembler, Bash, Visual Basic, SQL
+  - Y en lenguajes de programación tengo experiencia con: C, Java, Python, Assembler, Bash, Visual Basic y SQL
 
 ![Badge](https://bit.ly/icom-badge)
